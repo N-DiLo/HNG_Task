@@ -14,3 +14,7 @@ https://user-images.githubusercontent.com/65601832/129933758-edaed989-b8aa-4721-
 The app collect user data and diaplays the data on the second screen.
 Kindly click👉[Link](https://appetize.io/app/yjy930a451yaj7nk71mm5aad70?device=nexus5&scale=75&orientation=portrait&osVersion=8.1) for trials😤
 
+
+find out more about [Zuri](training.zuri.team)
+
+
